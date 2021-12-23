@@ -1,4 +1,8 @@
-# Welcome to StackEdit!
+# Welcome to the Jungle
+
+The meeting was a fiasco :D no policies or strategies were really discussed. Participants report a lack of seriousness by organization.
+
+
 
 On September 6-13, grassroots movements from all over the world will meet in Iceland to shape the foundation of a worldwide movement based on democratic confederalism.
 
