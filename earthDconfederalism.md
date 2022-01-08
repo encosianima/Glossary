@@ -1,12 +1,10 @@
 # Welcome to the Jungle
 
-The meeting was a fiasco :D no policies or strategies were really discussed. Participants report a lack of seriousness by organization.
-
-
-
-On September 6-13, grassroots movements from all over the world will meet in Iceland to shape the foundation of a worldwide movement based on democratic confederalism.
-
 September 6-13 several grassroots movements from across the world will gather in Iceland to build a movement for worldwide democratic confederalism to discuss ecological strategies. 
+
+The meeting was a fiasco :D no policies or strategies were really discussed. Participants report a lack of seriousness by organization, specially the controvertial ED, promoter of other similar projects, all ended up in the mainframe of "Tragedy of the Commons".
+
+Below the Agenda
 
 100 hundreds years ago Europe went through a tumultuous time,  which leads to the rise of dictatorships and a further world war. 
 At the speed of light of current technological advances , the information society is developing into a smart version of the world where *Products of capitalism indoctrinate and manipulate, promote false consciousness, society falls under hypnosis of capitalist mass culture*
