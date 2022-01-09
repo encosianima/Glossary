@@ -10,3 +10,6 @@
 
 
 * Keep the direction outwards and not towards ourselves.
+
+
+* Conflicts are inevitable, their management involves transformation as a tool.
