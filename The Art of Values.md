@@ -1,5 +1,6 @@
 ### In a nutshell
 
-If Art express sensitivity, artifacts implies techniques, therefore, the process of reasoning is active in each artistic expressions.
+Through the Theory of Values we want to develop a method that uses language to model concepts and build shared spaces, we call it Art to underline the practice that envelops the theory. 
 
-From a Theory of Values we wish to develop a practice using language to model concepts. 
+Art expresses sensibility, and at the same time requires planning, in every artistic technique there is therefore a process of practical reasoning, through which we assume we can operate.
+
