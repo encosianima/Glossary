@@ -1,5 +1,9 @@
 ### Pathos
 
+## Passion in Spinoza
+
+## Activism as passion
+
 Activism is often flawed; besides passion and dedication, it requires skills, knowledge and resources to achieve systemic change goals.
 
 The risk is to fight against current exploitative development models, in a form that is ineffective in the long term.  We pursue battles in a piecemeal way, dissipate energies and end up practising 'blah blah blah' (like the policy-makers to whom we are referred).
