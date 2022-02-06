@@ -1,5 +1,7 @@
 ## Baruch Spinoza
 
+Spinozian morality finds its foundation in reason, which helps to identify what is useful for a given end. If human beings were to live unrestrainedly without the law of unity of spirit and matter, we would be insatiable beings. Morality prevents us from being pleasure-seeking beasts, to the point of making others the means of our appetite. 
+
 Spinoza sees the human being as a unity of thought and extension, the achievement of wisdom comes through knowledge, through which we are freed from passions. 
 
 Reason is configured as an instrument of knowledge and a means to transform inadequate knowledge into adequate knowledge and thus liberate the being from its state of passivity (from its passions). 
