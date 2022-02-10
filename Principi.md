@@ -13,7 +13,9 @@
 * For an effective and ethical coexistence, the direction should be kept outwards and not towards ourselves.
 
 
-* Conflicts are inevitable, their management involves the strength to see one's mistakes and make amends.
+* Conflicts are inevitable; their management involves the strength to see one's mistakes and make amends.
 
 
-* Knowledge is a process made up of reliable sources and meticulous analysis of data collected.
+* Knowledge is a process made up of reliable sources and appropriate analysis of data collected.
+
+
